@@ -1,5 +1,5 @@
 # PONY-TOWN-INFO
-click here for my ponytown info
+yeah
 
 im probably AFK
 minors DNI
